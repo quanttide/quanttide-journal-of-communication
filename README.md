@@ -1,1 +1,1 @@
-# quanttide-journal-of-communication
+# quanttide-journal-of-communication-management
